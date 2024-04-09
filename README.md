@@ -1,2 +1,2 @@
-# Notcoin-
-Main Notcoin 
+# ❤Notcoin-❤
+ Notcoin 🤑🤑
